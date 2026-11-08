@@ -11,6 +11,5 @@
 ---
 
 ### Who is bro?😭
-Reze (1).jpeg
 ```text
 Hey guys my name is nachos. Is anyone there? Hello?
